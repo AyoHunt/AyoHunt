@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AyoHunt
 - TrapMoney RolePlay! | https://discord.gg/tmrp
-- learning Coding & Cyber Security 
+- Self Taught & Learning Since 2021
 - 📫 Contact - AyoHunt
 
 <!---
